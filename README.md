@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil
+### Boas vindas ao meu perfil 💙
 
 Meu nome é Bruna celzlein
 
@@ -12,6 +12,9 @@ bruna.celzlein@escola.pr.gov.br
 
 @brunacelzlein
 
-!.[ ](https://media.tenor.com/i7llTDaTUAAAAC/naruto.gif)
+
+![]https://media.tenor.com/i1rsgMyOFgcAAAAM/cat-cat-love.gif
+
+
 
 
